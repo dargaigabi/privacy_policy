@@ -1,4 +1,4 @@
-Privacy Policy forFlexiChat
+Privacy Policy for FlexiChat
 
 Effective Date: 17 June, 2023
 
